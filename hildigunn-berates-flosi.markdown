@@ -23,4 +23,9 @@ By saying "your Christ" instead of "Christ", Hildigunn separates her gods from F
 Hildigunn can hardly make any charge more strong than direct challenge to Flosi's manliess and the manliness of Flosi's gods.
 Her challege makes a settlement unmanly, and vengence the only option.
 
-
+As soon as Flosi hear Hildigunn's challenge to his manliness, he is furious.  
+He calls Hildigunn "the worst monster" and charges her with "wanting to take the course that is the worst for us all."(116)
+He is furious because he is aware of how Hildigunn just constrained him.  Because of her goading, Flosi will lost manliness, and lost status, if he does not avenge Hoskuld.  This was Hildigunn's goal, and she used every weapon at her disposal to force Flosi to take vengence.  
+Flosi knows that killing the Njalssons will lead to many deaths, including his. However, we will see that this dim prospect does not stop Flosi from following the path that Hildigunn sets out for him.
+Flosi's fury at Hildigunn is a measure of how constraining her words are.  Flosi would not be furious for nothing.  Flosi recognizes that Hildigunn has started a feud which will lead to many deaths, and he recognizes that his part is only now to take vengence.
+Flosi retorts: "'Cold are the councils of women'", and his face "was, in turn, as red as blood, as pale as grass, and as black as Hel itself."(116).  Flosi can see the burning fast approaching, and because of Hildigunn's goading, he cannot stop it without sacrificing his honor.  
