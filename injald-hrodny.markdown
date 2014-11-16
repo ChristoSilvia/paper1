@@ -9,4 +9,5 @@ Flosi is invoking Ingjald's wedding vows, and is accusing him of disloyalty. How
 Flosi knows that one of the loyalties will win out, and he is moving to try and consolidate his support, and remind him of the oaths that bind them together.
 Reminding Ingjald of his shared loyalties may not win him over, but it will make him think twice about supporting Njal with his men.
 
-Once Flosi refused the settlement, he rides to his sister Hrodny, who was once married to Njal.
+Once Flosi's refused Njal's settlement 
+ refused the settlement, he rides to his sister Hrodny, a concubine of Njal. She has had at least one son by him, and feels loyalty towards him.  
